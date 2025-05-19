@@ -1,3 +1,4 @@
+
 👨🏼‍💻𝐇𝐞𝐲 𝐇𝐢 𝐠𝐮𝐲𝐬 𝐲𝐨𝐮 𝐜𝐚𝐧 𝐮𝐬𝐞 𝐁𝐫𝐮𝐭𝐗𝐅𝐁 𝐭𝐨 𝐅𝐢𝐧𝐝
 𝐅𝐚𝐜𝐞𝐛𝐨𝐨𝐤 𝐈'𝐝 𝐏𝐚𝐬𝐬𝐰𝐨𝐫𝐝 🔑🤩
 
@@ -21,10 +22,9 @@
 
 Now Enter Username of the persons id you want access)
 
-Then to use this tool you will be automatically redirected to
-our YouTube channel do aubecribe and click on Bell and come back
-to Termux you Will be able to use this tool for free
+Now to use this tool you will be automatically redirected to our
+YouTube channel do subscribe and click on Bell icon and come back
+to Termux and you Will be able to use this tool for free
 
-Hope & You Love the fool for any queries or error comment To Learn Hacking
-join our Channel 👇🏼👇🏼👇🏼👇🏼👇🏼
-https://youtube.com/@hackers_colony_tech?si=7MbI9sm2pOPC1LP_
+Hope & You Love the tool and for any queries or error join our Hacking
+our Channel 👉🏼 https://youtube.com/@hackers_colony_tech?si=7MbI9sm2pOPC1LP_
